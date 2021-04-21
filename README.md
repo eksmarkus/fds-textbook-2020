@@ -38,7 +38,7 @@
 [Scopus](https://www.scopus.com/authid/detail.uri?authorId=57195585949); 
 [Researchgate](https://www.researchgate.net/profile/Ekaterina-Markus)
 
-Заинтерисованные могут ознакомиться с текстом моей кандидатской диссертации и моим CV.
+Заинтересованные могут ознакомиться с текстом моей кандидатской диссертации и моим CV.
 
 ## Обратная связь
 
