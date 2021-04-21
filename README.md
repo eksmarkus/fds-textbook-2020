@@ -34,10 +34,9 @@
 
 Дополнительно с моими работами можно ознакомиться в соответстующих соцсетях. 
 
-https://www.linkedin.com/in/ekaterina-markus-b773769a/
-https://www.scopus.com/authid/detail.uri?authorId=57195585949
-https://www.researchgate.net/profile/Ekaterina-Markus
-
+[LinkedIn](https://www.linkedin.com/in/ekaterina-markus-b773769a/); 
+[Scopus](https://www.scopus.com/authid/detail.uri?authorId=57195585949); 
+[Researchgate](https://www.researchgate.net/profile/Ekaterina-Markus)
 
 Заинтерисованные могут ознакомиться с текстом моей кандидатской диссертации и моим CV.
 
